@@ -7,7 +7,7 @@ We will put you several bot code discord to add on your bot so that it is even m
 Aria is a team of development as well as in the cyber protection, our systems are not yet public time that one is not on a 100% that it will work without error that any bones of windows!
 
 - Website: soon
-- Discord: https://discord.gg/B4aU3TN
+- Discord: soon
 - Twitter: soon
 - Github: https://github.com/AriaOfficial
 - Email: contact.ariateam@gmail.com
